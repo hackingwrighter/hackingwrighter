@@ -14,7 +14,7 @@
 
 - 📝 I regularly write articles on [https://jashobanta.hashnode.dev/why-aws-cloud](https://jashobanta.hashnode.dev/why-aws-cloud)
 
-- 📫 How to reach me **jashobantapradhan917@gmail.com**
+- 📫 How to reach me **jashobantapradhan.16291@gmail.com**
 
 - ⚡ Fun fact **I am funny😎**
 
